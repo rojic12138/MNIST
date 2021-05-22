@@ -1,1 +1,1 @@
-介绍请看博客
+介绍请看博客文章：http://rojic12138.com/yongpytorchgouzaoquanlianjieshenjingwangluoshibieshouxieshuzimnist/
